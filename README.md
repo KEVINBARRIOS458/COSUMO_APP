@@ -1,1 +1,0 @@
-# COSUMO_APP
